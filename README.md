@@ -1,0 +1,2 @@
+https://docs.google.com/spreadsheets/d/1S5DPvpH76QSPWZenmcEf4Ae_rDOo_J4x48bHeXDH8DU/edit#gid=0 - task
+https://docs.google.com/document/d/1hlBaeToM-MCiIK1m4XDegyBfqeo3dzVbIxFOOQacREQ/edit - gane design document
